@@ -1,6 +1,6 @@
 <p align="center">
-  <b>ivannluka gh (i love tabieita)<b></b>
-  <p>chronic name and personality changer btw</p>
+  <b>ivannluka gh (i love tabieita)</b><b>
+  chronic name and personality changer btw
 
   </b><br>
 
