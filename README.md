@@ -1,7 +1,7 @@
 <p align="center">
   ivannluka gh (i love tabieita)</b><b>
     click 
-    [rentry](https://rentry.co/qyubriks)
+  <a href="https://rentry.co/qyubriks">RENTRY</a>
     for stan list
 <p align="center">
   chronic name and personality changer btw </b><b>
