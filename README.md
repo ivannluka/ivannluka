@@ -1,6 +1,6 @@
 <p align="center">
   ivannluka gh (i love tabieita)</b><b>
-    ts still a wip
+    click rentry[https://rentry.co/qyubriks] for stan list
 <p align="center">
   chronic name and personality changer btw </b><b>
 
